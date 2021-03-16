@@ -1,1 +1,1 @@
-# trexgame
+# fairy-and-the-star
